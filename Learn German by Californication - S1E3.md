@@ -14,6 +14,7 @@ Vor langer Zeit schrieb ich mal eine Buch.
 Den Leuten schien es zu gefalen und deshalb schrieb ich noch eins und noch eins.
 
 00:01:11
+
 Dann klopfte Hallywood an meinee Hintertür.
 
 00:01:13
@@ -33,19 +34,62 @@ Leider musste ich lernen, ihre Eier nicht so stiefmütterlich zu behandeln.
 
 Moody!
 
-Ladies and Gentelmen, Todd Carr der Karamellizierte, blank­po­lie­rte Autorenfileme, dass sich mit meine heißgeliebte klein Geschichte den arsch abgewischt hat.
+00:01:28
+
+Ladies and Gentelmen, Todd Carr der Karamellizierte, blankpolierte Autorenfileme, dass sich mit meine heißgeliebte klein Geschichte den arsch abgewischt hat.
+
+00:01:35
 
 Und aus ihrem Kack-tastische kassett magneten eine verrückte Nebensache namens Liebe gemacht hat.
 
+00:01:41
+
 Das sind meine Fans.
+
+00:01:43
 
 Heulst du immer noch rum, weil du dich zu Hure gemacht hast.
 
+00:01:45
+
 Nurr wenn mein Zuhälter nicht das ist.
+
+00:01:47
 
 Du bist kein Gott verdammter Scheiß-Faulkner.
 
+00:01:48
+
 Und du bist kein Scheiß-Brett-Ratner.
 
-Jey das kann Man als Kompliment verstehen.
+00:01:51
+
+Hey das kann Man als Kompliment verstehen.
 Aber in dem falls war's kein.
+
+00:01:55
+
+Ich hab's satt, dass du in der presse Scheiße über mich erzälst.
+
+00:01:58
+
+Ach, deshalb du bist hier?
+
+00:01:59
+
+Ich dachte du hast rausgefunden, dass ich deine Frau fast in alle Zimmer deines Hauses gefickt habe.
+
+00:02:04
+
+Nein in allem Zimmer deines Hauses.
+
+00:02:06
+
+Und tut mir Leid mit dem Teppich.
+Ich wuster es nicht, dass die Gute ejakulieren kann.
+
+00:02:10
+
+verdammten Wichser.
+
+
