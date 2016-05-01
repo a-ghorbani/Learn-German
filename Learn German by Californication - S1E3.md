@@ -85,7 +85,7 @@ Nein in allem Zimmer deines Hauses.
 
 00:02:06
 
-Und tut mir Leid mit deinem Teppich.
+Und tut mir Leid mit dem Teppich.
 Ich wustte es nicht, dass die Gute ejakulieren kann.
 
 00:02:10
