@@ -1,13 +1,13 @@
 I am pissed off that no subtitles match the dialogue in this tv series.
 At least the one I am watching on Netflix.
 So I decided to create the subtitle while I am watching it.
-This will improve my German while I am contributing intellectually to the German litreture ;) yes we need more Californication here in Germany.
+This will improve my German while I am contributing intellectually to the German litreture ;) 
 
-# Let's get started and see what Hank Moody is up to (anyway he has good taste like always)
+## Let's get started and see what Hank Moody is up to :/
 
 00:01:05
 
-Vor langer Zeit schrieb ich mal eine Buch.
+Vor langer Zeit schrieb ich mal ein Buch.
 
 00:01:07
 
@@ -15,7 +15,7 @@ Den Leuten schien es zu gefalen und deshalb schrieb ich noch eins und noch eins.
 
 00:01:11
 
-Dann klopfte Hallywood an meinee Hintertür.
+Dann klopfte Hallywood an meiner Hintertür.
 
 00:01:13
 
@@ -52,7 +52,7 @@ Heulst du immer noch rum, weil du dich zu Hure gemacht hast.
 
 00:01:45
 
-Nurr wenn mein Zuhälter nicht das ist.
+Nurr wenn mein Zuhälter nicht da ist.
 
 00:01:47
 
@@ -91,5 +91,19 @@ Ich wustte es nicht, dass die Gute ejakulieren kann.
 00:02:10
 
 verdammten Wichser.
+
+00:03:18
+
+Hank
+
+00:03:18
+
+- Wo ist Karen
+- Zu Hause bei Becca.
+
+00:03:23
+
+Sie ist echt Witzig.
+
 
 
